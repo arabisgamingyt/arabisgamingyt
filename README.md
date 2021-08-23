@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on nothing
 - 📫 You can reach me through my facebook, instagram, twitter and discord profiles
 
-Facebook: https://cutt.ly/XQ5GAQm
-Instagram: https://cutt.ly/MQ5HQze
+Facebook: https://cutt.ly/XQ5GAQm<br>
+Instagram: https://cutt.ly/MQ5HQze<br>
 Twittwr: https://cutt.ly/RQ5HILJ
 
 <!---
