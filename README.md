@@ -1,7 +1,7 @@
 - 👋 Hi, I’m **@arabisgamingyt**
 - 👀 I’m Interested In **Gaming**
 - 🌱 I’m Currently Learning **Graphic Design & Website Design/Development**
-- 💞️ I’m Looking To Collaborate On **nothing**
+- 💞️ I’m Looking To Collaborate On **Nothing**
 - 📫 You Can Reach Me Through My **Facebook, Instagram, Twitter And Discord Profiles**
 
 [Facebook](https://cutt.ly/XQ5GAQm)<br>
