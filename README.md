@@ -6,7 +6,9 @@
 
 Facebook: https://cutt.ly/XQ5GAQm<br>
 Instagram: https://cutt.ly/MQ5HQze<br>
-Twittwr: https://cutt.ly/RQ5HILJ
+Twittwr: https://cutt.ly/RQ5HILJ<br>
+Discord: https://cutt.ly/OQ5ZVBC<br>
+Website: https://cutt.ly/Blogger-Website
 
 <!---
 arabisgamingyt/arabisgamingyt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
